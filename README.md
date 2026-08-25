@@ -1,3 +1,3 @@
-![Card05-033-015-1.png](https://files.catbox.moe/788td2.png)
+![@nanami_77m on twt](https://files.catbox.moe/oc91mv.jpeg)
 <p align="center">
-$\color{#e27072}{"Wanna~feel~the~heat?~Leaf~it~to~me!}$
+$\color{#2939E6}{dont~say~youve~given~up~on~reality,~samsa!}$
